@@ -5,3 +5,4 @@
 - 📫 How to reach me you cant
 - 😄 Pronouns: he, him
 - ⚡ Fun fact: i like baguettes
+- 🥶🥶🥶 Favorite Emoji : 🤮🤮🤮
