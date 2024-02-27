@@ -5,4 +5,8 @@
 - 📫 How to reach me you cant
 - 😄 Pronouns: he, him
 - ⚡ Fun fact: i like baguettes
-- 🥶🥶🥶 Favorite Emoji : 🤮🤮🤮
+- 🥶 Favorite Emoji : 🤮🤮🤮
+- ⭐ Dream : Be a pro gamer and a programmer
+- 🏠 IP Address : no
+- 🤫 Secret (dont tell anybody) : i like to sleep at 10 pm
+- 😕 Why im doing this : i think my unity is done loading goodbye!
