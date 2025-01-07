@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me you cant
 - 😄 Pronouns: he, him
-- ⚡ Fun fact: i like baguettes
+- ⚡ Fun fact: i like opaque windows
 - 🥶 Favorite Emoji : 🤮🤮🤮
 - ⭐ Dream : Be a pro gamer and a programmer
 - 🏠 IP Address : no
